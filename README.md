@@ -1,1 +1,1 @@
-## Making Cool Stuff For Cooler People 😎
+## Making Cool Stuff For Cooler People. 😎
